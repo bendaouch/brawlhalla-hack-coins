@@ -1,1 +1,0 @@
-# brawlhalla-hack-coins
